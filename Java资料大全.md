@@ -1,4 +1,4 @@
-| [gqzdev-教程](https://www.cnblogs.com/gqzdev/p/shang.html)   | [链接](https://www.cnblogs.com/gqzdev)                | [密码](https://www.cnblogs.com/gqzdev/p/ds.html) |
+| [gqzdev💖教程](https://www.cnblogs.com/gqzdev/p/shang.html)   | [🔞   整理不易，点个赞支持下呗🌹](https://www.cnblogs.com/gqzdev/p/shang.html)             | [📌](https://www.cnblogs.com/gqzdev/p/ds.html) |
 | ------------------------------------------------------------ | ----------------------------------------------------- | ------------------------------------------------ |
 | Java在职加薪                                                 | 链接：https://pan.baidu.com/s/1phoRfArS9wviGhR-8eRtng | 提取码：8de9                                     |
 | Java架构师3大阶段                                            | 链接：https://pan.baidu.com/s/1DlXh33y5t4cZUmZH0cLvCw | 提取码：5s76                                     |
